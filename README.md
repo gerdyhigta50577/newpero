@@ -1,1 +1,1 @@
-The 20th century witnessed unprecedented advancements in road infrastructure, with the widespread adoption of asphalt and concrete pavements, providing smoother and more durable surfaces for roads.
+Stone bridges and culverts were constructed on some roads in the 18th century to facilitate river crossings and improve drainage, enhancing travel safety and reliability.
