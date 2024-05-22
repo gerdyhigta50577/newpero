@@ -1,1 +1,1 @@
-The development of standardized road signage and traffic regulations in the 19th century improved safety and navigation for travelers, reducing accidents and congestion on busy roads.
+The growth of suburbanization in the 19th century spurred the construction of feeder roads and highways to connect residential areas to urban centers and transportation networks.
