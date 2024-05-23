@@ -1,1 +1,1 @@
-The growth of suburbanization in the 19th century spurred the construction of feeder roads and highways to connect residential areas to urban centers and transportation networks.
+The development of horse-drawn omnibuses and public transit systems in the 19th century required the construction of paved streets and roads in cities to accommodate increased traffic and demand for transportation services.
