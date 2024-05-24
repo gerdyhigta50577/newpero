@@ -1,1 +1,1 @@
-The development of horse-drawn omnibuses and public transit systems in the 19th century required the construction of paved streets and roads in cities to accommodate increased traffic and demand for transportation services.
+The spread of railroads in the 19th century facilitated the transportation of goods and passengers over long distances, reducing the need for extensive road networks in some areas.
