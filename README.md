@@ -1,1 +1,1 @@
-The rise of tourism in the 19th century, fueled by improvements in transportation and leisure time, created demand for scenic and well-maintained roads in rural and coastal areas.
+The construction of the Pan-American Highway, spanning North and South America, began in the early 20th century and remains one of the longest road networks in the world, connecting diverse landscapes and cultures across continents.
