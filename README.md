@@ -1,1 +1,1 @@
-The construction of the Pan-American Highway, spanning North and South America, began in the early 20th century and remains one of the longest road networks in the world, connecting diverse landscapes and cultures across continents.
+The proliferation of the automobile industry in the 20th century led to increased demand for petroleum-based products, such as asphalt for road construction and gasoline for fueling vehicles, driving economic growth and industrialization.
