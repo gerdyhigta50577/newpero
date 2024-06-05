@@ -1,1 +1,1 @@
-The proliferation of the automobile industry in the 20th century led to increased demand for petroleum-based products, such as asphalt for road construction and gasoline for fueling vehicles, driving economic growth and industrialization.
+Travelers faced numerous hazards on 18th-century roads, including potholes, ruts, mud, and uneven surfaces, which could cause accidents, damage vehicles, and delay journeys.
