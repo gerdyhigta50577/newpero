@@ -1,1 +1,1 @@
-The width of 18th-century roads varied, with many being narrow and winding, particularly in rural areas, where terrain and property boundaries influenced their layout.
+Innovations in road construction materials and techniques, such as the use of asphalt and concrete, emerged in the 19th century, offering more durable and weather-resistant surfaces for roads.
