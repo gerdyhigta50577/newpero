@@ -1,1 +1,1 @@
-The widespread adoption of road signs, lane markings, and traffic signals in the 20th century standardized communication and navigation for drivers, enhancing safety and reducing accidents on roads.
+Roads in the 18th century were primarily unpaved, consisting of dirt, gravel, or cobblestones, which made travel slow, difficult, and uncomfortable.
