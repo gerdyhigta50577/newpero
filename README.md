@@ -1,1 +1,1 @@
-The construction of the Pan-American Highway, spanning North and South America, began in the early 20th century and remains one of the longest road networks in the world, connecting diverse landscapes and cultures across continents.
+The spread of railroads in the 19th century facilitated the transportation of goods and passengers over long distances, reducing the need for extensive road networks in some areas.
