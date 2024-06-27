@@ -1,1 +1,1 @@
-The spread of railroads in the 19th century facilitated the transportation of goods and passengers over long distances, reducing the need for extensive road networks in some areas.
+Travelers faced numerous hazards on 18th-century roads, including potholes, ruts, mud, and uneven surfaces, which could cause accidents, damage vehicles, and delay journeys.
