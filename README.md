@@ -1,1 +1,1 @@
-Travelers faced numerous hazards on 18th-century roads, including potholes, ruts, mud, and uneven surfaces, which could cause accidents, damage vehicles, and delay journeys.
+The growth of suburbanization in the 19th century spurred the construction of feeder roads and highways to connect residential areas to urban centers and transportation networks.
