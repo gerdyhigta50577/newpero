@@ -1,1 +1,1 @@
-The construction of transcontinental highways and national road networks in the 19th century fostered economic integration, regional development, and cultural exchange across diverse landscapes and communities.
+The construction of military roads and strategic transportation routes played a crucial role in military campaigns and logistics during conflicts such as the Napoleonic Wars and the American Civil War.
