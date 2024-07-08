@@ -1,1 +1,1 @@
-The construction of military roads and strategic transportation routes played a crucial role in military campaigns and logistics during conflicts such as the Napoleonic Wars and the American Civil War.
+Road tolls, known as turnpikes, were introduced in the 18th century to fund road maintenance and construction, with travelers required to pay fees at toll gates along designated routes.
