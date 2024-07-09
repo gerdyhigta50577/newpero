@@ -1,1 +1,1 @@
-Road tolls, known as turnpikes, were introduced in the 18th century to fund road maintenance and construction, with travelers required to pay fees at toll gates along designated routes.
+The construction of the Great Ocean Road in Australia, completed in 1932, is considered one of the world's most scenic coastal drives, attracting tourists and travelers from around the globe.
