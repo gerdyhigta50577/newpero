@@ -1,1 +1,1 @@
-The construction of the Great Ocean Road in Australia, completed in 1932, is considered one of the world's most scenic coastal drives, attracting tourists and travelers from around the globe.
+Highwaymen, or robbers who preyed on travelers, were a common threat on 18th-century roads, particularly in remote or isolated areas where law enforcement was scarce.
