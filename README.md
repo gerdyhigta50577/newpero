@@ -1,1 +1,1 @@
-Highwaymen, or robbers who preyed on travelers, were a common threat on 18th-century roads, particularly in remote or isolated areas where law enforcement was scarce.
+The introduction of the first automated toll collection systems in the 20th century, such as electronic toll tags and automatic toll booths, improved efficiency and convenience for drivers on toll roads and bridges.
