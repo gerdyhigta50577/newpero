@@ -1,1 +1,1 @@
-The development of turnpikes, or toll roads, proliferated in the 19th century, with private companies or local governments collecting fees from travelers to fund road construction and maintenance.
+The construction of the Golden Gate Bridge in San Francisco in 1937 marked a milestone in bridge engineering, featuring a suspension design that allowed for the efficient and safe passage of vehicles over long spans.
