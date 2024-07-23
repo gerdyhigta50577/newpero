@@ -1,1 +1,1 @@
-The construction of transcontinental highways and national road networks in the 19th century fostered economic integration, regional development, and cultural exchange across diverse landscapes and communities.
+The development of the first high-occupancy vehicle (HOV) lanes in the 1970s and 1980s promoted carpooling and public transit use, reducing congestion and pollution on urban roads.
