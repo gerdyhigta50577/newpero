@@ -1,1 +1,1 @@
-The development of the first high-occupancy vehicle (HOV) lanes in the 1970s and 1980s promoted carpooling and public transit use, reducing congestion and pollution on urban roads.
+Traveling long distances on 18th-century roads was slow and arduous, with average speeds ranging from 3 to 5 miles per hour for horse-drawn vehicles, depending on road conditions.
