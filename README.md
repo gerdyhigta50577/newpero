@@ -1,1 +1,1 @@
-The construction of canals and railways in the 19th century provided alternatives to road transportation for long-distance travel and freight transport, reducing reliance on traditional road networks.
+In urban areas, streets were often narrow and congested, with pedestrians, carts, and animals competing for limited space, leading to traffic jams and safety hazards.
